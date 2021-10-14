@@ -18,3 +18,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning and teaching theory of data visulization
 - 🐦 Twitter: https://twitter.com/mpobiru
 - 📖 Scientific Publications: https://orcid.org/0000-0002-9925-2173
+- 😄 Pronouns: she/her
